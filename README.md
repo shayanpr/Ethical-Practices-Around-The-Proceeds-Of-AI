@@ -98,4 +98,4 @@ I could see Sean was not convinced. But I believe I was right. Sure, for some ti
 
 After the coffee, Sean said his goodbyes and left. I decided that I didn't need to be home anytime soon, and thanks to recent advancements, it was quite safe for me to wander around town in the dark. 
 
-I walked aimlessly in the general direction of my home, enjoying a quiet starry night. The future looked bright. 
+I walked aimlessly in the general direction of my home, enjoying a quiet starry night. The future looks bright. 
