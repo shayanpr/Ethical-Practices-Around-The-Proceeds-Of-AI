@@ -1,6 +1,8 @@
 # Ethical-Practices-Around-The-Proceeds-Of-AI
 This is a story about a day after humanity collectively decided to agrees on more ethical practices around the proceeds of AI, so that all people can have their needs met by society. It is a bounty on gitcoin website.
 
+Update: This story is the winner of the bounty.
+
 -----
 I ran past the security as it scanned my face for identification. It was 8:55 and I had a presentation at 9 for my boss and some of the top executives of the company about our general AI. The next day At 5 P.M, there was going to be an online event about the same thing, and it was not ready yet! This presentation was supposed to be the finished product, ready to be given to the company's spoke person and all the graphics complete. 
 
